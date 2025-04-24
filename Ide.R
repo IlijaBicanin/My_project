@@ -1,1 +1,1 @@
-ne ide mi se 
+hocu kuciiiiiii
