@@ -1,1 +1,1 @@
-hocu kuciiiiiii
+tek za dva sataaaa
