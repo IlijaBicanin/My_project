@@ -1,1 +1,1 @@
-jeboteee sta cu sad stvarno
+para vrti gde burgija nece
